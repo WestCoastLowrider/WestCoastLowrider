@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello.
 
 ![image](https://gifdb.com/images/high/dr-dre-lowrider-car-b8tjwhvtrfgryd5c.gif)
 <!--
