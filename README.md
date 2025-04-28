@@ -1,6 +1,6 @@
 ## G'day mate
 
-![image]([https://gifdb.com/images/high/dr-dre-lowrider-car-b8tjwhvtrfgryd5c.gi](https://24.media.tumblr.com/55459c7225f4f0537d0b45279767cb33/tumblr_mtrefvmmjq1qedb29o1_500.gif))
+![image](https://24.media.tumblr.com/55459c7225f4f0537d0b45279767cb33/tumblr_mtrefvmmjq1qedb29o1_500.gif)
 <!--
 **WestCoastLowrider/WestCoastLowrider** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
