@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-![image](https://cdn.dribbble.com/userupload/21655705/file/original-8720fbf04a30f82dd0653767462c3b88.gif)
+![image](https://gifdb.com/images/high/dr-dre-lowrider-car-b8tjwhvtrfgryd5c.gif)
 <!--
 **WestCoastLowrider/WestCoastLowrider** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
